@@ -1,0 +1,2 @@
+# Shandel-3ro-basico
+TRABAJOS EN CLASE DEL TERCER BIMESTRE
